@@ -1,1 +1,0 @@
-# POOG1-Practica
